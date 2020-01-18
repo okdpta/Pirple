@@ -1,0 +1,1 @@
+reminding myself before i enroll for pirple
